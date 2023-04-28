@@ -4,6 +4,6 @@ Kelompok 2
 
 Anggota Kelompok:
 
-1.
+1. Aby Tiya Pratama
 2. Muhammad Rizki Erlangga Putra
-3.
+3. Robi Martoni
